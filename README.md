@@ -31,3 +31,6 @@ market share in the highly competitive and continually expanding Tablespreads ar
 
 ![image](https://github.com/2607kushagra/Leveraging-Predictive-Analysis-for-Prominent-FMCG-Brand-/assets/123271098/e6223085-8c2b-4f43-a141-5088fd6302ec)
 
+![image](https://github.com/2607kushagra/Leveraging-Predictive-Analysis-for-Prominent-FMCG-Brand-/assets/123271098/da38d6f9-c3ad-4cd9-b239-4a1181d4bc85)
+
+
